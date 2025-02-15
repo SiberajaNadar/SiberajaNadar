@@ -36,7 +36,7 @@ Gained hands-on experience in **cellular network operations**, server room analy
 When I'm not coding, you’ll find me **dancing, traveling, or journaling**!  
 
 📫 **Let's Connect!**  
-📍 [LinkedIn](www.linkedin.com/in/siberaja-nadar)  
+📍 [LinkedIn](https://www.linkedin.com/in/siberaja-nadar/)  
 📧 siberajanadar4411@gmail.com  
 📞 +91 9004433072  
 
